@@ -10,3 +10,5 @@ It's a brilliant idea, but executing it is the problem.
 I'm still waiting.
 
 Hi Henry, MagnaTiles are the best toy ever.
+
+Thanks for the information, I'll check it out!
