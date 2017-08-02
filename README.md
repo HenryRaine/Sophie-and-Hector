@@ -12,3 +12,5 @@ I'm still waiting.
 Hi Henry, MagnaTiles are the best toy ever.
 
 Thanks for the information, I'll check it out!
+
+Can you send me the URL?
